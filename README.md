@@ -1,6 +1,6 @@
 # 9116-Spoofer-cracked-by-parca
 
-- ###_**ez to crack look the shitty owners and cool people and more shits**_
+- ### _**ez to crack look the shitty owners and cool people and more shits**_
 
 ![Owner](https://user-images.githubusercontent.com/95001569/175351386-32895a03-a99c-45d0-b371-b0ab1e17fd59.png)
 
